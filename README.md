@@ -1,1 +1,1 @@
-# Junction_X_hackathon
+# Junction X Baku hackathon
